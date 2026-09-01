@@ -1,2 +1,2 @@
 # personal-campaign
-Personal campaign
+Please support my personnal campaign. Text "JOIN" to 54321
